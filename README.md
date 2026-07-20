@@ -1,4 +1,4 @@
-# 🌿 89HE: Manual of Life (Part V1.0)
+# 🌿 89HE: Manual of Life (Part V1.0) : Union Needs Involvement ? 
 > **100% Open Source Project — Read, Reflect & Contribute**
 
 [![License: Open Source](https://img.shields.io/badge/License-Open%20Source-brightgreen.svg)](LICENSE)
@@ -7,11 +7,11 @@
 
 ---
 
-## 📖 Overview
+## 📖 Union Needs Involvement ?
 
-**89HE** is a 100% open-source knowledge repository aimed at synthesizing, preserving, and sharing the deep observations gathered from Ancient Indian Literature, Eastern Philosophy, and Universal Human Wisdom. 
+**89HE** is a 100% open-source knowledge repository aimed at researching, preserving, and sharing the deep observations gathered from Ancient Indian Vigyan,  Literature, Indian/Bhartiya Philosphy, Eastern Philosphy and Universal Human Wisdom. 
 
-The goal of this initiative is to preserve foundational ancient insights—spanning moral discourse, science, architecture, and spiritual inquiry—and make them accessible to seekers, thinkers, and researchers around the world.
+The goal of this tricker is to preserve foundational ancient insights, About Vigyan —spanning wisdom discourse, science, architecture, and spiritual inquiry—and make them accessible to seekers, thinkers, and researchers around the world.
 
 > *"Questioning everything, yet remaining deeply rooted in Union, Oneness, and Harmony within."*
 
