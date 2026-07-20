@@ -64,7 +64,7 @@ This project embodies the spirit of **Bhartiye Thought**:
 
 ---
 
-## 🤝 How to Contribute (Union Needs Involvement!)
+## 🤝 How to Contribute
 
 **89HE** is a collaborative union. We welcome thinkers, researchers, writers, and philosophers from India, Asia, and across the globe to contribute.
 
