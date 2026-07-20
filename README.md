@@ -9,7 +9,17 @@ Attention to Reader's, Contributor's must be allowed Age for Learn Adult Educati
 
 -HOW TO Implimant, Use case is your awareness level. Not My Responsbility.
 
-# 89HE is research open source project- One of part of fundamental manual of Life Part- Science (chemical)  Vs Vigyan (chmical + Energy Science + Enviroment) on most scared, Shamless topic, which people need to be private (Yes... 100% absultely Right), No doubt. But, How you eat, How you to reproduce, How to be Learn Union to Oness. The Most Cared, Attention, Precaution, Needs to be know that its not enjoyement, It's Process of Union. I Proud to be Indian where Ancient Philospher, Thinker that also touch the fundamental process of existence.
+# 89HE is research open source project- 
+-One of part of fundamental manual of Life Part- 
+
+"Science (chemical)  Vs Vigyan (chmical + Energy Science + Enviroment) on most scared, Shamless topic, which people need to be private.
+(Yes... 100% absultely Right), No doubt." Read it in Alone.Keep it Secreat. 
+
+Deepak Pratap Singh- Independented Author. Degree in Computer Application, Natural Student of Mathematics & Physics, Research & Interest to know More Indian Ancient Knowledge. 
+
+"Exploring toward Wave of Life."
+
+But, How you eat, How you to reproduce, How to be Learn Union to Oness. The Most Cared, Attention, Precaution, Needs to be know that is not enjoyement, It's Process of Union. I Proud to be Indian where Ancient Philospher, Thinker that also touch the fundamental process of existence.
 
 Check Your Eligiblity Later, Before that Think about some of question below. Save in your Memory- Thank Me Later.
 
