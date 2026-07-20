@@ -19,7 +19,7 @@ BHARTIYE- Question on Every Thing, But Still Involve with maintaining Union, Wit
 THIS IS NOT "Prescription", "One of Part from Manual of Life.
 ! HOW TO Implimant, Use Case is your Awareness Level. - Your Own Manifestation -Not Contributor's Responsbility.
 
-# 89HE is research open source project- Union Needs Involment ? 
+# 89HE is open source project- Union Needs Involment ? 
 -Science (chemical)  Vs Vigyan (chmical + Energy Science + Enviroment) 
 
 "Exploring toward Wave of Life" -Subjective In Nature.
